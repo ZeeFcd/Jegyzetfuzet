@@ -1,0 +1,2 @@
+# Jegyzetfuzet
+Szia Zoli :)
